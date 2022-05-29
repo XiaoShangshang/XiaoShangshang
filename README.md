@@ -4,7 +4,7 @@
 - 🔭 I’m a college students in Dalian Neusoft University of Information.
 - 🌱 I’m currently learning Programming.
 - 👯 I’m looking to collaborate on guys.
-- 🤔 I like One Piece and Guitar.
+- 🤔 I love One Piece.
 - 💬 Ask me about any questions, as long as I can help.
 - 📫 How to reach me: My QQ:1621124735
 - 😄 Pronouns: Man is the one who forgives womens's lies.
